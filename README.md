@@ -1,2 +1,2 @@
 # Certificates
-My collection of certificates of Knoowldge, Skills and Accomplishments across various domains. 
+My collection of certificates of Knowldge, Skills and Accomplishments across various domains. 
